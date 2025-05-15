@@ -4,4 +4,5 @@
 интроверт, не особо люблю шумные компании.
 в дальнейшем собираюсь продвигаться в карьере в IT-сфере и разрабатывать сайты, приложения. 
 
-![908ab3b80732039e813ee867f07fc948](https://github.com/user-attachments/assets/b75a7ace-607b-4df8-8e2f-669c9cd89695)
+
+![90c4355b49d311ee8baa3eecbe30a25c_upscaled](https://github.com/user-attachments/assets/5e519b37-ce38-40c6-b2a4-34d0323235d1)
